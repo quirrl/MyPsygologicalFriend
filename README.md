@@ -1,1 +1,1 @@
-# MyPsygologicalFriend
+# MyPsychologicalFriend
